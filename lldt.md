@@ -470,6 +470,26 @@ The only difference was that Marauder's Map were only useful for secret-passages
 
 Having no idea about how it worked, I assumed that it could speedily learn how the environment was structured and where others are.
 
+The Magimap revealed its true wonder when I first traced my finger along its edge. Unlike ordinary maps that show stationary landmarks, this parchment breathed - its inked corridors expanding and contracting like living veins. Names bloomed beneath my touch in shimmering silver script, revealing not just locations but secrets:
+
+Here lies the Vanishing Step - tread lightly past moonrise
+Where the Grey Lady weeps for her lost diadem
+Demiguise fur gathers where time thins every third Tuesday
+
+Most astonishing were the moving portraits it displayed - not just locations, but scenes unfolding in miniature. I watched Professor Flitwick dozing in his armchair, saw Peeves hovering by the trophy room with inkpot poised, even glimpsed Hagrid tending to something feathered and large in his hut.
+
+Yet the map held darker secrets. Sometimes it whispered warnings in shifting script:
+Where mortem gathers, shadows feed
+Or revealed corridors that shouldn't exist, labelled Temporis Via in fading ink. Once, near the third-floor corridor, the parchment turned deathly cold. All ink vanished save one phrase that chilled my blood:
+He remembers the taste of your family's fear
+
+The parchment clearly knew things even my ancestors hadn't understood. That night, as I studied its shifting paths, Hugin gave a strangled cry. The map's edge curled like burnt paper as crimson letters scorched themselves beneath my finger:
+Turn back. The watcher in the walls hungers.
+
+Anyway, Magimap became a helpful assistant when I sneaked out at nights. It always told me where I could access without getting into trouble because of the professors and the ghost, whose name was, as heard, Peeves.
+
+Maybe not this time.
+
 (not yet finished)
 
 *Je déroule le rouleau du temps,*
